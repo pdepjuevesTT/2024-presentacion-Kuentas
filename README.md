@@ -8,7 +8,7 @@ En mis tiempos libres me gusta leer, tocar instrumentos
 
 ![image](https://github.com/pdepjuevesTT/2024-presentacion-Kuentas/assets/53240537/7a7bf620-a55b-4ee6-b74c-854bc198390a)
 
-La última pelicula que me gustó mucho fue *__"La vida de Brian"__*
+La última película que me gustó mucho fue *__"La vida de Brian"__*
 
 ![image](https://github.com/pdepjuevesTT/2024-presentacion-Kuentas/assets/53240537/7a3d7c7e-65c2-4973-894c-8b4a148c698e)
 
